@@ -4,4 +4,3 @@
 
 - 👯 Я шукаю можливості спробувати в сфері Software development(Junior)  
 - 📫 Як зі мною зв'язатися: соціальні мережі [Inst](https://www.instagram.com/puhach_uwu/)  
-- 😄 Займенники: he  
